@@ -1,1 +1,1 @@
-# experiment ecerbody's LIFE is experiment.
+# experimenting everybody's LIFE is experiment.
